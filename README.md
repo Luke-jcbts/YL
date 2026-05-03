@@ -1,2 +1,2 @@
-# YL
-About Me 
+# About Me  
+Just a high school senior who enjoys... 
